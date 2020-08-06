@@ -1,0 +1,2 @@
+# bimo
+Saya ingin belajar
